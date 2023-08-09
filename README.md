@@ -1,6 +1,6 @@
 - 👋 Hi, I’m CheckM4te
 - 👀 I’m interested in Music, Chess, Coding, and Coffee
-- 🌱 I’m currently learning how to produce Phonk House
+- 🌱 I’m currently learning how to produce Retrowave (and AI too)
 - 📫 How to reach me checkm4te.contact@skiff.com
 
 <!---
